@@ -1,1 +1,0 @@
-# lupustechnologies.github.io
